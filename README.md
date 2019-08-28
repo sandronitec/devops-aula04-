@@ -2,5 +2,5 @@
 
 Faculdade Impacta
 Senhor dos Aneis
-Lagoa Azul
+Eu não assisto merda nenhuma
 Hentai
